@@ -42,7 +42,12 @@ ever getting better\
 never losing who we are
 
 BRIDGE\
-*don't sing, or maybe talk, haven't figured this out yet*
+**death** comes to **watch** us and he will **not** go home empty **han**ded\
+there's a **calm**ness that **comes** when you've **no**thing else to **lose**\
+the **sky** stretches exuberant a**bove** me, the earth ex**pan**sive below my **feet**\
+**[]** here I **stand**, my **fate** entwined with **yours**\
+the **wraiths** of our **fa**thers wind **close**ly be**hind**\
+if I **fall** today I do not **fall** alone, we- die- (forever?) free-
 
 POST-BRIDGE CHORUS\
 children, now sleep\
